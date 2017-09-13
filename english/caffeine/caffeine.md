@@ -1,1 +1,1 @@
-There was an abundance of [coffee](../caffeine/coffee/caffeine-amount.md), tea, and energy drinks surrounding them. The survivors couldn't tolerate another drink of caffeine, nor could they withstand another night without sleep.
+There was an abundance of [coffee](../caffeine/coffee/caffeine-amount.md), tea, and energy drinks surrounding them. The survivors couldn't tolerate another drink of caffeine, nor could they withstand another night without sleep. Concentration can be difficult in a state of hyperactiveness along with the constant flood of "jitters" day in and day out!
