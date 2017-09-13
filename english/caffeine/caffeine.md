@@ -1,0 +1,1 @@
+There was an abundance of coffee, tea, and energy drinks surrounding them. The survivors couldn't tolerate another drink of caffeine, nor could they withstand another night without sleep.
